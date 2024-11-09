@@ -119,9 +119,19 @@
 *  https://hentaifox.com/gallery/133529/ (color, milf) ***
 *  https://hentaifox.com/gallery/129710/ (bleach manga, milf)
 *  https://hentaifox.com/gallery/109442/ (bleach manga, milf) ***
-*  https://hentaifox.com/gallery/134198/ (hot milf) *****
+*  https://hentaifox.com/gallery/134198/ (hot milf, hard) *****
+*  https://hentaifox.com/gallery/134138/ (hot milf, hard) ***
 *  
 *  
-*  
+
+### Fav Manga: 
+* https://hentaifox.com/gallery/45527/
+<img height="80px" width="50px" src="https://github.com/user-attachments/assets/6c17d198-8374-4380-a08d-f968a2fb991e"></img>
+* https://hentaifox.com/gallery/134198/
+<img height="100px" width="80px" src="https://github.com/user-attachments/assets/5383492e-6e88-48d4-96ca-832cbe9ead75"></img>
+
+* https://hentaifox.com/gallery/134138/
+<img height="100px" width="80px" src="https://i2.hentaifox.com/004/3109684/cover.jpg"></img>
+* 
 
 
