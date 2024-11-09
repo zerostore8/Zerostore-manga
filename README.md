@@ -129,9 +129,15 @@
 <img height="80px" width="50px" src="https://github.com/user-attachments/assets/6c17d198-8374-4380-a08d-f968a2fb991e"></img>
 * https://hentaifox.com/gallery/134198/
 <img height="100px" width="80px" src="https://github.com/user-attachments/assets/5383492e-6e88-48d4-96ca-832cbe9ead75"></img>
-
 * https://hentaifox.com/gallery/134138/
 <img height="100px" width="80px" src="https://i2.hentaifox.com/004/3109684/cover.jpg"></img>
+* https://hentaifox.com/gallery/126634/    ![image](https://github.com/user-attachments/assets/83a1b63b-e0ea-4b52-b6e9-8b67137d2288)
+* https://hentaifox.com/gallery/125261/    ![image](https://github.com/user-attachments/assets/55c4ca4d-6498-4c24-acd4-73a112c55ac2)
+* https://hentaifox.com/gallery/107606/   ![image](https://github.com/user-attachments/assets/e0191189-fa53-45e7-8068-c107b7b888fd)
+* https://hentaifox.com/gallery/87525/    ![image](https://github.com/user-attachments/assets/0e2ec111-f471-4954-8a87-50ce91b4bca7)
+
 * 
+
+
 
 
