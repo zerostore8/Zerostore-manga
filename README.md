@@ -115,7 +115,10 @@
 *  https://hentaifox.com/gallery/134295/
 *  https://hentaifox.com/gallery/134288/ milf 
 *  https://hentaifox.com/gallery/110082/ milf ***
-*  https://hentaifox.com/gallery/133973/ (colorful, milf) ***
+*  https://hentaifox.com/gallery/133973/ (color, milf) ***
+*  https://hentaifox.com/gallery/133529/ (color, milf) ***
+*  
+*  
 *  
 
 
