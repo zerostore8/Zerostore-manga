@@ -1,6 +1,6 @@
 # Zerostore-manga
 
-## Manga: 
+## Manga fav: 
 *  https://hentaifox.com/gallery/126079/ (milf)
 *  https://hentaifox.com/gallery/125979/ (milf)
 *  https://hentaifox.com/gallery/126546/ (milf)
